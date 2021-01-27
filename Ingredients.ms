@@ -1,0 +1,1 @@
+Heavy whiping cream, condensed milk, sugar, cocoa powder , vanilla essence and roasted almonds.
